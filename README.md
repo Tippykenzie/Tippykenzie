@@ -2,7 +2,7 @@
 
 🎓 Actuarial Science student at Mount Kenya University  
 💼 Investment Analyst Intern at Kenya Investment Authority (KenInvest)  
-🚀 Founder & Consultant at SmartArcade — empowering academic and analytics excellence  
+🚀 Founder & Consultant at SmartArcade  empowering academic and analytics excellence  
 🌍 Seeking analyst internship opportunities globally
 
 ## 💡 What I Do
