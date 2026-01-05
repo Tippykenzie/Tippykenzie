@@ -1,7 +1,7 @@
 # Hi, I'm Mary Valarie Aringo 👋
 
 🎓 **Actuarial Science Graduate | Finance & Data Analyst**  
-📍 Based in Kenya | Open to remote opportunities  
+📍 Based in Kenya | Open to remote opportunities & Full time Data Analyst Opportunities
 
 ---
 
